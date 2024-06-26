@@ -1,0 +1,1 @@
+“When you have a conflict, that means that there are truths that have to be addressed on each side of the conflict. And when you have a conflict, then it's an educational process to try to resolve the conflict. And to resolve that, you have to get people on both sides of the conflict involved so that they can dialogue.” – Dolores Huerta
